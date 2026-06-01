@@ -11,4 +11,4 @@ I'm currently improving my programming skills and building projects to gain expe
 
 ## 📫 Reach Me
 - Email: enzodesa21@gmail.com
-- LinkedIn: 
+- LinkedIn: https://www.linkedin.com/in/enzo-est%C3%A1cio-de-s%C3%A1-ab323b412/
